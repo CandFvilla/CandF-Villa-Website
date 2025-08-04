@@ -1,2 +1,2 @@
 # CandF-Villa-Website
-Real estate company owned by Chetal Family
+Real estate company owned by the Chetal Family
